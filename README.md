@@ -1,0 +1,1 @@
+![kintoneCafeTitle](image/kintoneCafeFukuokaTitle.003.jpg)
